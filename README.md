@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Angeline Michael Antony
-- 👀 I’m interested in ...
+- 👀 I’m interested in doing as many as internships i can.
 - 🌱 I’m currently learning Computer Science engineering(second year)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Linkdin
